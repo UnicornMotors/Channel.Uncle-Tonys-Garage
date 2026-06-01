@@ -1,0 +1,1 @@
+- [A Cheap China Tool That Beat Expectations And Reminded Us Of The America We Used To Know](https://youtu.be/1Alwa6uQ1zA)
