@@ -1,1 +1,2 @@
 - [Throwaway Cars And The Transportation Crisis Nobody Is Talking About. Technology Run Amok](https://youtu.be/KKEkUs8MTnQ)
+- [Giving Power Back To The People! The Freedom-Mobile Is The Vehicle America Needs Right Now](https://youtu.be/-b9glOq2Cc4)
