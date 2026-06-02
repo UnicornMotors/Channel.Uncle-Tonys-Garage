@@ -1,0 +1,1 @@
+- [Throwaway Cars And The Transportation Crisis Nobody Is Talking About. Technology Run Amok](https://youtu.be/KKEkUs8MTnQ)
